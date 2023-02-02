@@ -1,0 +1,2 @@
+#***testi numer 1***
+Een _tekst_ is, ruim gedefinieerd, een reeks talige tekens, zoals letters, symbolen of klanken, die in een communicatieve situatie als een geheel wordt[enter link description here]reade mor/google(http://google.com)
